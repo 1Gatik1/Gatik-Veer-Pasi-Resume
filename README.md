@@ -1,1 +1,1 @@
-# Gatik-Veer-Pasi-Resume
+Gatik Veer Pasi personal CV
